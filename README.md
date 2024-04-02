@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sagarmakar
+- 👋 Hi, I’m 
 - 👀 I’m interested in maths, python and magic they both can do together. ;)
 - 🌱 I’m currently learning a lot. 
 - 💞️ I’m looking to collaborate with organisation or workplace that provides growth opportunity.
